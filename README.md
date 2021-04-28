@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AngeloCocomazzi
+- 👀 I’m interested in programming, electronics and computer stuff
+- 🌱 I’m currently learning different programming languages
+- 💞️ I’m looking to collaborate on cool project
+- 📫 How to reach me on instagram
