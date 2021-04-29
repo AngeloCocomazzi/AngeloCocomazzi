@@ -2,4 +2,4 @@
 - 👀 I’m Interested in Programming, Electronics and Computer Stuff
 - 🌱 I’m Currently Learning Different Programming Languages
 - 💞️ I’m Looking to Collaborate on Cool Project
-- 📫 How to Reach Me on Instagram
+- 📫 You Can Reach Me on Instagram
